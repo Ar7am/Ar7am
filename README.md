@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ar7am
-- 📫 How to reach me? On Insta (@ar7am_00)
+- 📫 How to reach me? On Insta @ar7am_00
 - 🗿 Pronouns: He/Him.
 - ⚡ Fun fact: Octopuses have three hearts, and one of them stops beating when they swim!
 
