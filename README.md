@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @Ar7am
-- 🌏 I’m interested in exploring the world!
-- 🐍 I’m currently learning python.
-- 🫡 I’m not looking to collaborate for now.
 - 📫 How to reach me? On Insta (@ar7am_00)
 - 🗿 Pronouns: He/Him.
 - ⚡ Fun fact: Octopuses have three hearts, and one of them stops beating when they swim!
